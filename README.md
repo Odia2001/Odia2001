@@ -1,4 +1,4 @@
-#📰📰About-Me📰📰
+#NeoSonico
 - My Name: Nguyễn Quốc Khởi
 - Nick Name: NeoSonico
 - My birth: 08/08/2001
